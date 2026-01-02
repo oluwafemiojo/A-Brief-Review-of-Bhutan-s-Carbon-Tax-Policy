@@ -1,4 +1,4 @@
-# A Brief Review of Bhutan's Carbon Tax: Origin, Coverage and Incidence
+# A Brief Review of Bhutan's Carbon Tax Policy: Origin, Coverage and Incidence
 
 At the 15th Conference of Parties (COP 15) in Copenhagen in 2009, Bhutan announced that it was going to maintain carbon neutrality in perpetuity. Despite being a small country of about 800,000 (UN Population Division, 2023) and nested geographically between India and China, Bhutan remains committed to promoting its unique philosophy of Gross National Happiness (GNH) under the following four main pillars: sustainable socio-economic development, environmental conservation, cultural preservation, and good governance. This demonstrates the immense importance that Bhutan places on protecting its natural environment.
 
